@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Minhaz55
+- 👋 Hi, I’m @BNking55
 - 👀 I’m interested in crypto currency market investment and web Developer 
 - 🌱 I’m currently learning English code and develop
 - 💞️ I’m looking to collaborate on Google 
